@@ -21,7 +21,7 @@ be used shredded, so they smoke it until the meat loses self-cohesion. This soup
 is better with solid chunks of pork; the shredded pork leads to a more
 homogenous texture, while with the chunks, you get nice big pieces of meat.
 
-One note it that this recipe is always changing; my dad experiments with
+One note is that this recipe is always changing; my dad experiments with
 different things. One year he just used ham chunks instead of pork shoulder
 because he couldn't afford the latter. It wasn't quite as good, but it was still
 good. There are also a few tricks he hasn't taught me; he wants to keep some
