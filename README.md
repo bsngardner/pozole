@@ -8,11 +8,11 @@ who obliged him with a basic sketch of how to make it. His first attempts
 included things like using just chicken broth as a stock and experiments with
 different seasonings. 
 
-The big breakthrough was using a smoked turkey carcass to make the stock. He
-also relied on the local mexican market for roasted green chiles until he
-started doing it himself. Later he experimented with different chiles to test
-their heat level. He found that using different peppers did not drastically
-change the flavor of the green chile sauce (some have slightly different
+The big breakthrough was using a smoked turkey carcass (after thanksgiving, most
+of the meat gone) to make the stock. He also relied on the local mexican market
+for roasted green chiles until he started doing it himself. Later he experimented
+with different chiles to test their heat level. He found that using different peppers
+did not drastically change the flavor of the green chile sauce (some have slightly different
 aftertastes), but some, like pasilla peppers, were much more consistent in spice
 level. 
 
